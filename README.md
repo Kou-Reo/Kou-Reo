@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **How you reach introverts in general?**
 
-- ⚡ Fun fact **Echidna dick have 5 head 🦔**
+- ⚡ Fun fact **Echidna dick have 4 head 🦔**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
